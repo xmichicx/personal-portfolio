@@ -30,7 +30,7 @@ That's pretty basic tbh, but it's only a website to get the basics done soo;
 And with this I will wish myself good luck and most important <ins>**much fun!**</ins> 
 I mean, after all I want to have fun while learning something new and this will make sure that I will keep going and learn new skills :)!  
 
-And with this being said, let's look together at this motivational "YEEE"
+With this being said, let's look together at this motivational "YEEE"
 
 >![YEEE](media/YEEEEE.png)
 

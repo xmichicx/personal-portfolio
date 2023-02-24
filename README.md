@@ -10,7 +10,6 @@ So, please lean back and follow me on my interesting journey:
 
 <big> Did I catch your attention? Perfect! Then let's get started. </big>
 
-------
 
 ## What I want to do
 
@@ -35,4 +34,4 @@ So and with this being said, let's look together at this motivational "YEEE"
 
 >![YEEE](media/YEEEEE.png)
 
-										~Michi
+<big>~Michi</big>
